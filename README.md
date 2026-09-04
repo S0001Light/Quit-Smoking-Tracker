@@ -1,5 +1,8 @@
 Microsoft Co Pilot and I, again...
 
+Quit It - Is a quit smoking for 1 year plan, 
+based on how many cigarettes you smoke daily.
+
 Your Complete Tracking + Cutback Program
 (1–4 week tracking → 3–12 month reduction)
 Tracking Phase — Weeks 1–4
